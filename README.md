@@ -2,9 +2,9 @@
 
 Discover exclusive free gift card offers available worldwide. Claim Amazon, Google Play, Cashapp, Xbox gift cards and PayPal gift cards fast with simple steps today.
 
-[For claim your rewards click here----CLAIM NOW](https://offerclaimzones.asitfarm.com/alloffer2/)
+[For claim your rewards click here----CLAIM NOW](https://crazyclaim.asitfarm.com/allgc/)
 
-[For claim your rewards click here----CLAIM NOW](https://offerclaimzones.asitfarm.com/alloffer2/)
+[For claim your rewards click here----CLAIM NOW](https://crazyclaim.asitfarm.com/allgc/)
 
 H1: Free Gift Card Offers for All Countries – Easy Rewards
 
